@@ -1,0 +1,165 @@
+| Arguments for Marriage and Motherhood | Arguments Against Marriage and Motherhood|
+| ------------------------------------- | -------------------------------------------|
+| Can be fulfilling                     | Can be parasitic|
+| Able to uproot patriarchal systems    | Can lead to potential abuses of power|
+
+
+# Advocating for Marriage and Motherhood
+
+Responding to Frye's claim that &ldquo;...heterosexuality, marriage and motherhood, which are the institutions which most obviously and individually maintain female accessibility to males, form the core triad of antifeminist ideology.&rdquo; 
+
+Whether it’s in line at the grocery store, flipping through the
+television channels, or even planning out one’s future, women cannot
+ignore the blatant expectation and pressures of two life changing
+events: marriage and motherhood. It’s impossible to avoid seeing the
+magazine headlines advising women on how to be the perfect mother, or
+hearing the television shows that gawk over wedding dresses. Despite all
+of these messages pushing marriage and motherhood, Marilyn Frye and
+Claudia Card push back on these traditional notions. Frye argues that
+these institutions are anti-feminist, while Card questions the value of
+the institution of marriage. In a time when women still face daily
+pressures to be a part of these institutions, these sorts of criticisms
+and pushbacks provide validation to women who want to choose a different
+path. But, while recognizing the female oppression that operates within
+marriage and motherhood, it is also important to note this oppression
+exists because those institutions exist in a patriarchal and sexist
+society. If the context for these institutions were to change, so would
+the oppression.
+
+Marilyn Frye advocates separatism as the best way for women to be freed
+from shackles of patriarchy. In her essay “Some Reflections on
+Separatism and Power,” Frye writes, “ceasing to be loyal to something or
+someone is a separation; and ceasing to love” (2). Women engaged in
+separatism are ceasing to be loyal to feminine norms, what men expect,
+their children and husbands, and any feminine positions as a caretaker,
+mother, or wife. Frye claims motherhood and marriage make women most
+accessible to men. She describes a parasitic effect that happens. Much
+like when a mother is carrying a fetus that lives parasitically, so too
+does a man to a woman. Marriage gives men a parasitic access to women
+the same way motherhood gives a fetus access. Card criticizes the
+institution of marriage, identifying four main issues. The first is that
+there are legal benefits to married couples, adding incentives to those
+who choose to be married. The second is that, even though divorce is
+permitted, the consequences can be so difficult that some instead choose
+to remain in a marriage. The third is marriage legally only allows for
+monogamy in the United States. The fourth problem is marriage gives
+greater access to one’s partner, allowing for a great deal of abuse to
+take place without protection (8). Yet Card says that people still
+choose to marry because it is a tradition viewed with glory and grants
+an individual status. It is a sign one is an adult. The same assertions
+can be said regarding motherhood. Frye and Card point out a great deal
+of issues that exist within the institutions of marriage and motherhood.
+Mostly they point out how these institutions are legally binding and
+create a unique access to another person that can be difficult to
+protect oneself from. Yet they do not acknowledge the benefits that can
+come from the legal bindings that these institutions entail.
+Additionally, they look at the institutions as corrupted by a
+patriarchal society and fail to see how they could operate outside of
+sexism.
+
+One of the main claims against the institution of marriage is the access
+it gives one to his or her partner. Frye describes the access men are
+given to women as parasitic. Card points to the way that such access can
+be detrimental to women, particularly in attempts for partners to
+separate or in cases of abuse. These are undoubtedly the experiences of
+too many women. But one must try to imagine what marriage would look
+like operating outside of a sexist, patriarchal society. So much of the
+oppression within marriage comes from women having already been
+determined to be a second-class citizens. Women often are transferred
+from being considered property of their fathers to property of their
+husbands. From the beginning, women were always property. Though women
+are no longer legally marked as property of their husbands, there are
+still consequences in marriage today of these former legal boundaries.
+There often exists an expectation for women to cook, clean, and be
+sexually available for their husbands, often on top of working a job
+outside of the home. This idea is even reflected in forms of media and
+marketing. In cleaning commercials, women are predominately the users of
+the product. In cooking magazines, women are primarily featured in
+articles and on the covers.
+
+But this isn’t the pervasive norm in all homes. In fact, this mindset is
+starting to dwindle. There are marriages today that strive to operate as
+much outside of the patriarchy as possible. Husbands and wives who
+embrace feminism are likely to be willing to not only share the burden
+of work, but to perceive each other as equals. When a marriage achieves
+this, the legal bindings are less worrisome. In fact, the legal
+invasiveness of the state’s incentives and benefits could even become
+necessary. For example, a woman who may work full time while her husband
+stays at home with their children would want to ensure her husband has
+access to healthcare. Without working a full-time salaried job, he has
+no way of accessing benefits other than through his wife. When a couple
+perceives each other as equal, there is no longer an expectation for one
+person to fulfill only the roles traditionally assigned to their gender,
+especially against one’s desires. The ability to perceive one’s partner
+as equal, which leads to a reasonable motive for the State to intertwine
+legal benefits, all rests upon a deeper level of trust, love, and care
+for one’s partner that will be discussed later.
+
+Regarding the institution of motherhood, Frye and Card have similar
+perspectives here as they do to marriage. Yet there are women who choose
+to become mothers out of their own desires. If a single mother adopts a
+young child and enters into the institution of motherhood, it would seem
+odd to say she oppressed herself. While she is certainly tied to a
+person, she does so out of her own desire. Frye claims motherhood is a
+part of “the core triad of antifeminist ideology” (7), but an essence of
+feminist ideology is to allow women to be whom and what they want to be
+without the restrictive boxes that come with them. Frye’s assertion that
+motherhood is antifeminist is an antifeminist statement to make.
+Motherhood is difficult. It’s inconvenient. It’s even annoying
+sometimes. But there are women, some married and some not, who want to
+have children and believe they will find a sense of fulfillment in that.
+
+There is something similar that must be done within the context of
+motherhood that is done within the context of a marriage to make it
+separate it from an oppressive patriarchy. If a child is being raised by
+two partners, particularly a husband and wife, intentional decisions
+need to be made to raise children outside of the set of norms and
+expectations that are set on both the child and the mother.
+Intentionally entering motherhood knowing how one will balance being a
+parent with their partner can be the difference between oppression and
+not. If a woman believes there are particular roles she must do but has
+no desire to do, she will experience a great amount of oppression from
+motherhood. For example, if a mother believes she must stay at home to
+care for her children while her husband works, but she wishes to work,
+she will experience a degree of oppression by feeling subservient to her
+husband. But if she and her husband are intentional about having an
+egalitarian relationship, she may decide that being a stay at home
+mother is not best for her. Daycare may be best for her children, or
+even having her husband act as the stay at home parent. Whatever the
+decision may be, it’s the ability to choose one’s role because they want
+to do it, not because they have to do it, which differentiates if the
+institution is oppressive.
+
+Despite all of the reasons to be or not to be married or a mother, Frye
+and Card miss an important element central to all of these institutions.
+Care and love for a person are the primary driving factors towards being
+a part of marriage and motherhood. Despite the difficulties, there are
+self-proclaimed feminists who willingly and excitedly decide to take
+part in these roles as wife and mother. It is not because they are
+seeking to be antifeminist or shower themselves in more oppression. It
+is because there is something that makes these institutions worth being
+a part of, despite the hardships they entail. Card gives the reasons for
+marriage as tradition, status, and having been heavily romanticized (9).
+She’s not completely wrong. These are the case in some relationships.
+But ultimately, the institutions of marriage and motherhood are not
+self-seeking. They require intense self-sacrifice, love, compassion, and
+work. For one to be in a marriage or to experience motherhood as not
+oppressive, it requires a great deal of intentionality from every party.
+
+It’s a lofty feat to hope that the institutions of marriage and
+motherhood will operate absent of oppression within the context of a
+sexist and patriarchal society. Patriarchy affects everything it
+touches, and these two significant building blocks of a society are
+unlikely to go untouched. But when women and men are intentional about
+their relationships, it is possible to escape or minimize the oppression
+that takes place. Aiming to have an egalitarian relationship both in
+marriage and in parenthood requires an immense amount of work and
+reevaluation to succeed. But it is not impossible. While Frye and Card
+raise important points about the difficulties of marriage and
+motherhood, these points only stand when they are tainted by sexism and
+patriarchy. They are not universal. Intentionally working to eliminate
+these from relationships works to not only purify the institutions, but
+also, if enough feminists make the choice to make their relationships
+this way, has the potential to turn patriarchy on its head.
+
+![Bride on Wedding Day](data:image/jpeg;base64,/9j/4AAQSkZJRgABAQAAAQABAAD/2wCEAAkGBxISEhUSEhIVFRUVFRgVFRUYFRYWFxcVFhcYFhcXFxUYHSggGBonHRcXITEiJSkrLi4uFyAzODMtNygtLisBCgoKDg0OGhAQGislICUtLS0vLy0tLS0tLS0tLS0tLS0tLS0tLS0tLS0tLS0tLS0tLS0tLS0tLi0tLS0tLS0tLf/AABEIANEA8QMBIgACEQEDEQH/xAAcAAABBQEBAQAAAAAAAAAAAAAAAgMEBQYBBwj/xAA/EAABAwIEAggDBgUDBAMAAAABAAIRAyEEBRIxQVEGEyIyYXGBkQehsSNCUsHR8BQzYnKyY+HxNHN0khUlgv/EABkBAAMBAQEAAAAAAAAAAAAAAAABAwQCBf/EACoRAAICAgICAgEBCQAAAAAAAAABAhEDIRIxBEEiMlGxEyNCYXGBkbLh/9oADAMBAAIRAxEAPwD3FCEIAEIQgAQhCABCEIAEIQgATbk4m3IAaq7Iw2xXamyMNxSEKQhcQBWZriXam0WPDHuBIcRO1rDiouIqYijSOssqPHdfGgD+4Hl4b8kvPqLapazZ7e2HgxoHOfHkst0rzA6C3VDW2LnE3cp3TLKNowvSrHOdUOup1jriRJHj2rCPRZipSBtMbRfYbnyP74p7NcY0khvEzPP3uq+jJ1O9B6/8LtCH6uHZwaT66iq2th7kN7w4cI5hJrlw2RRzAOEOIJGx4jyKKYtEnLqx2O/I7q3p5kG2u0/vhxVBWLTfjzG6aq4kxBOofP0K5cbO06PRuiPSFwxNM9bTZLmh5qO0jTxMx2rc+YXsLcyp1K003te0tBDmkOG5G4twXzNkuMc14ew3aZB2cCLi3mvSvhxnT62NfrIJNMSQAJLTYkDcwYnyRFU6FPas9kmySdvdFM2XOHuuyRIoHshOJrD90J1AAhCECOoQhMYIQhAAhCEACEIQAIQhAAm3JxIegBp+y5huKU/ZIwqQhxcQmcXiBTaXH9PmgaM7mGJDXVb2mSeQaAA0HjEE+Z8F5B0lzR+JqGLUxZo4Ac/NbrPse2t1lOjcOIbIBg6jJiN+fqs7neWsotaCJee63gBzMfT9FG0maFGzCuw7ibD9+afo5a7QfEzO3zWowOSF5kj9PZXZyYaYU5Z/wWjgXs8txOEezvNMfiF/mFXV8KBccV6JmOUOYDBMLN43Lzu0A8SBx8QOB8FSGWyeTDxM+2CN4I4cCPyKgvpvJi5Uys2HX42PgV3QBu704/oq2QoZ06b8Y3Wz+DuOP/yOk8abvkQsbi7tFr+ey0HwpdpzOj4hwPtKaFI+oMObJY29SmsKbJ0bHzQcjuG7qdTOG29U8EwOoQhAHUIQgAQhCABCEIAEIQgAQhCABIelpD0ANv2SMLunHJvC7pCFlR8bg2VW6agkTMTY+fMKS5cQxoy9Xo+ymTU1aGNBcQAAIF+Cw1UHEP69ws93YH+m2zfzK3PS+q+tpwNGQ6sftHfgpjdZnPXuw9bR1QNKmA1uk9sNaIBLCBqtyKyzX4NmJ/klUaIACWQuYLFU6rdVNwcPDcHkRuD5peJqNY0ucQALkmwCg0Xsr8bRBCw+c4csfI24rUOz5lSRQp1Kv9QAaz/2eQD6KvzSg94k0o8nsd9ChJo7VNUYjG4ZlSTs7idvcKpI0u0EgnxlaPGYGTbvjYfiHLzVDi8AXnZzSPCFphKzLkg0yNi8Nq8OP7Kt/h1RLcwoHk/T7gqvxdMsbBJLh7LU/DbAk6apN2YmkD/+mVTHsFSLJThR9CYQ/RPt2Pmo+D/JSG8fRUIDmG29U8mMNx80+ExAhCEDFIQhAAhCEACEIQAIQhAAhCEACQ9LSXoAbcm8NunSmcPukIedukpTt0lAzK9JhXo4hmLotD2tYW1KfEtmTHjxB/pWc6e5pUf1dShRc9ha17XnTDg4cIMjhuOC9IxenQ4vMNAJJ8FjKmBP8HScWx2qhA/C11Rzmg+hChPVmnE7aZgMhx+JdWB6oMYTDpJk/KFp82bqtuOIUjAYYaiY2BP5D5lNYre6zSlezYlsyObY6tSJAw+tvBwcPoRZV+WUMVWq63jq6Y+7O/stz1YKRUaBwT/aa6OuLfszOc4YHgqd1In70eMAn0J2WlzEgyomDy8vc1oEkuB8gOP0XEGzrJGKVspMP0Tr4g/Y0qlQkibGByJK9W6M9BjhMHD4611VtVwFwNILQJ42JWxynLadBobTEbSdyYtdWGIEtK3xhS2eXPJb0V+EGykN4+iaoC6dHHyXZIXhuKfCYw+5T6YjqEIQM6hCEACEIQAIQhAAhCEACEIQAJL0pJegBBTNDdPFM0e8kIefuuLr90lAFXmDOtrNok9gN6xzfxmSGg+Agk+inVsMHMLDsR8+fuo2Y0HuIdTdD2XE7OHFp+SewGK6xmqC0glrmng4bj981wkrdlG3SoxrqRpvc07bH33Vbia9zEGNx5rVdIssLnahUcwFpu0CZ9RsvPnUMUCR1jDfc0zP+SyThTPSwPmrstKRso+LTOHo1gZe/wBA0CfzT1aFJor0ysNKSrLAfZ1KemxjteRIsfl7qDiMS1lzc8Bz/wBkjLsV1lUSbB0k8zy8gnHQprkj2pvD0TtTYqHgcS2oxrmmbCfOymP2K9JOzx2qINPdODf0TVLdPcfQoEdoblSFHod4+SkJiBCEIAUhCEDBCEIAEIQgAQhCABCEIAEl6UkvQAgpml3vVPFMUndr1SEPv3XEp+6SgBuoRx9Oc+CbwtLTqJ3c7UfYD6ALmIa7U1zRMSCJixi48bJyjVDhbhYg2IPIhc+zv0FamHAg8VhszwGh5BEePgt6sJ8QjpqMcLdj6EqXkL42aPEbc+JV4gACSVRY/HnZjfU/p+qtsDU1tM7pTcha8a6ziGTAY0XdG8nl4BY0nJ6NzkofYzWU5bUxTiQ4hgs6pxJ/Az9eC0uCyGjScGgFzyDDXPgQBvAA8LKxr5M+oQ0P6qkI0saIMARePHhtZGKwjGgfZMIIh3gBAEwPVaVjSRlnmcnpmpyvE6Bpi1o2EK+1SJHJYejiuraA+QAIB3AtAEgXWjyes5zTeWgH57QrxfoyyXseom6f4+6iYQyFLO4XaJsKPe9FJUal3vRSUxAhCEAKQhCBghCEACEIQAIQhAAmamJa1wa6xd3TwJ5eaeULNO73AQATqInSRcGJB53GyT6AkV6ukAxN4NptzVPnOdhlIupzOotDotLT2voU82o6rRG+zSHatM2lzZ33tssj0nwmJ1uNKWioDIa/sB8WDhNwb6rRtYlGOSchpXo1WCzplTCmuCDpp6nbWcGy4W8io2DzWOoBYZrOnxa20Fw4TIss/kNCtRoVqWJcwgkU2BoGg09AGqI3M6YP4U7h8Q5tZpc/UwbNAvq4FZ5TfNNL8+/+FFhb6NCxtT+IqCmSBqBeXHUAInS0czJVwqPKsxaWlv3tbibiXGe04eEmFcUqgcF1ilF9E2LKQ1lyecD2n9V0zK6CqiOrIdMMudXqANgBrJc47C8xPODMLXHwE+Cr2YV73aqnZANm/mYU8q5LiWwy4PkUeVdH2tOxIuNbrTtp0tH1KualBrb6ZJ38PNScViWU27xFr8/2VR1s3aSO9Eybb/vkklHGqG3PI7F1g08G3kXggqJSaW9gttzb+hUplenU7rxO8RB9iEVGRLiSQOXGLQuu9nPWmQsSySL2IPZMXgWt5SpmQ40Nc5hdDXNJaPH12Pgq7HOZDajjcAODtOrVbZxHFVucPdEiQQSRytcGdwfBKx0bPKaupqsTuPNZL4f5gK+GZUH3hPzWtdw9FRdEn2DO8FJUYd4KSujk6uIQgBaEIQMEIQgAQhCABCE3iKoY0uMx4CY8YHBAEbNqz2s+z7xcBJiAOJM/u6h5jmkDaGjve3PgFAzXGVXholomQ2Nn8TE8Y4G6x+CzCq01Kb3SGAQP7tgfCL+qzZMsnBuK0hxcU9l1Q6RB+KZRa8R1bnOaCCCSQGydpAJsFbY/FU5DHOAcQYBtMX3WBw+UNOHxFekD1jKk03X1N0gOOhxB3Lr+AFwIVfk+a1sVWDHvGqHNGo6SSIIDi0WEmR5QhJ/suaOk1ZpMHn/WY2phXEFjGAtcIJcR3+00xxbAgEXnezmZ4ljntbTeQ4kdkNBDWiZJJvJkeyy+bYV7HNeBJnQ4SZa6DIBHDf3HNR8vxVZjnOp09fWPawMaYc10EEA85iyz5ceVJyh7NTUoR5JmvbXoioK7qjmtY2HaSO3B4wd7GWxey1eVZrTdVbTbL9bS5rx3RABLSeDovC8zwrT1nU1hop06YaWOg6nuhzqhi4PATBku8CrvoLhRiK1WqCadLdoBLZAhrCBO4DSJI2K58S2266MrlZ6cgJtlUEgD3/NO6wLr0rOaYsCEziawAJJiBJPIJo4nUbbcPPiVnOluYOZSDZg1HaYn7vH8h6rmU6VncIcpKI1j8YahJ4E9keHBVlRO03y0Jp68+crdm+KrRGeYVrlGZ6naX2eRE/ijafFVVRQa5IuLEbJQyOLHPGpqjW16XagCBGrwJJ/fus9ndcizhBMEcQDeQfYKyoYrrKQeSZcO0Afw2IHKYlUub4nvNgkahHhYG/qt12jDVOmOfBnEasJp/DUqN3m2swvS3Gw9F5B8Da32VZoGkCs6G8gYMei9eceyqIlLsUe8PNSFHfuPNPro5OoXEIAdXJQkygLFSglIXXFMVi0JIKUkMEziA/7hb6gn808k1HQCYJjgN/RJjK3GUqTWk1GtJsXECBI4x67ry7NRNZ4pua2buJNrzBP4trr0atqqtcTZpmBF9zvy/wBljcThNdQloADCQbGIIgQ7b7tys0MlycXXGr/rQnH2Iy504J1MOvpeXPaQJcQ48ht2ATc35SspRwuJdVovpUjDNL9TgA0RBOqIkdkEDiSr/oxQc2saNXU0TqY4ghrpI1Mkkdr6+K0OYMDSGNIBuZOxA4DxvYeBXE8twfFaKY42Z/DYlmIY3S1usnU4CzQTaBO/lusz04D8IKJZULHdeKjYcAS4cxyEtHEx5rUDL6OHLXNpvDdQLnvZVLQbdoPgxJjeAZtyXmnTnMetrl2o1ABFOTBaR4ACBv4rRguS6ovky/HiXGbYzE5k/DuqMpUXWY97XkapJIc6mdvvACTd269G+GuHqGk91Qk6aj6TSdiGHSXNHiQV5d0Tyupja9Oi1xAu5z27MbEF1ovePMhfQeGoBjQ1ogAQP3zTeKq5JX+hmK+rVqUXOcQ5+o9kgdloGwgcdzJ5qMzMnVnBoNyY8uavlHGCph5qBgDiIJFpHiNlxKDfT0VjkXtC5AAA2Fv39Vg+kWYMrV+pDB9mezVDyZES5pbt3uM8Frcxx7aTXFzHdhpdYSC0Nkxw8F551YDW1GX0nUI/Cdx7KXkSpJF/FjbcmaDCmycqBMYN4IBBkESD4FPVCsxo9kSqFCrBTqiiVQuCiFZFi9Ln04JDgHADgRZxjyj2TOd1QdYa3tWBO1uF+d1EpVtFVpOxlp8iIRnNSDtDS683lrWyXGNtgPTxW3C7gY/IjU7IPwMqfzwZ/mTcydhueK9q+76LxD4QdjFYln+pPobj5L25vdWlGSfYt/DzCkKM/h6KQmcHULi6mA4m5ThTATQmLJSSUohEJnJ1icTbAnAkztAm69PU0t58xPyTiEnsZV1mOc402taGtsTqOxFogWPusdicO7BVJDppkNaWv2IbIAJ4iLE+IPn6LCqs2yxlZhY8SD4A+RuoTxe12Bn3Zpg6xptNRoeSC2m78U9kcnGTb3TeIouqVNToDGNMU3ATqLiBUdwiG2/vvCpcN0QpOrsa4ua+lU60Q4wGscHN0g2vYGefKFrcfTIGqTDQS5ojtAAmDI+nJTi+adropCTXZT5u7RRqamh+mm4hsE6omARNxGnjJv5LwvG4SqHMfUY1oqOqGCQAATMCTIAkXP6r1yh0pp4gvFBjhTZZ9Y9kNkva3SACXElm0bOus1jcrxBp1WvYZknUxrnsLndskEACBMcpkcE5ZXFqt1sU3ezdfDfIBhsMHkh1SqA5zuTQAGtBNyIEzzJWuhR8toCnSpsGzGNaPJrQFJK0NuTtnBxBQSklACHtBEFZnMOi7Ze+g4sLpPVmOrLucRLZ4xzmFpnpJXEoqWmdwm47Rh8BQqUwWVGaSDa8tIN5aeImeSkOKuM4bLQeRj0/cKmKxZI8XSN+OfJWMVFGqqVUCi1Qol0U2OcRcbgyPMXCfx75aROkOaduJ4m/ORbxKax4sVArV6baYcSZY3UYuRpAkALR477RHyV0xv4Z1v8A7HE3JBeN/CR+S91pd1eC/C3DFlYPdMvcCZ3vME/X1XvNDurbFmDIqYt+w8gn0w/YeSfC6JHUIQmA4dk3KdKbITQmC40LpC6ExHWFLTYSwUmdI6hCEhgqzNnEiKb4eOEwT5cz4KzVdmmCae3xHzXM+jvHXLZT0qzTJe5oqEAS4Bt/PiJ4J7GTo03u3Tq8xEqmzvFAkCoIEwXcAf6vDhKYoVnUDpkmmd2m4Hi3l6LLzSdMu8N7RVZT0Jw+FqtxBrPhr7Ne1j2kuD7OAAJA1OMTwXoOHxOpukaWuAhpBlpB2c2bxzBvb1WQ6S4sGnTDXAAkuJ3gWE/MqZkNUthmrUA1pa+DJBkGeRlNTqVIUsH7tSNPo09mSY4nc23SiUqsQ5rXjyTcrSZjhXF0pJQBxybThTbikMrsybLT5fS6oStDjDY+SoHBZPIW0zZ4700R6iiVSpVVRKqzGyJWY0WKR0d6P/xhLHWptOupzcxpnR6uLQfAnwT+KbZaT4bUG9XinfeBa3yaRP1HyVvH+1E/J+lmayukKeMPAdYP0XreG7q8yrUdOIcf6wfmF6XhO77LZA8/KOu7vonm7BMnup1mwVCIpdXEJgPAosuIQB2yFxCAO2RKEIAJRKEIAJUTMczpUGa6jgBMevJSiqTNaTKTXPfodTdAc14Bbew3suJyaWikFFv5EXN8va4F7QC14kjfcfRUFDC6GljjLQewDu0cp5clJfhQ1pbSqV6bXEw0P1tbw7IeCQLbTCexTQSBJ23O6yTp9GvG5LTKHG4EOGkzAOoecRPzU7JHOa3q+saCDLSbAjkeXzS6zOB91ArMhSumVfyVGuw+OEBuoS7dviOKmscsNhq2lzXOJAaZnlY7+C12ExEtBHJasU7RkzQ4k2VwJAqJUqxA6U25Bem6lSAiwINfdypq+5hW+INvn+apa7pk/vyWfMtGnA/kR6qiVFJeVGqLIb0RK7VefDmpDsUzmxjvYuB/yCpK03Vl0BdGKqt/FQd8nsKrh+6Oc6vGxzMqf2r/ADW7y8yweQWOzOn9o9a7KTNNv9oWyHZ5mTpErh7p2nsE2NvdLpbBUJil1cQmI71iOsR/D+JXf4ccykBzrEdYu/w45ld/hx4oATrRrSuoau9Q3kgBvWjX4pzqW8l3qm8kANa/FUPSRja7TRNoc2pzkiS0lvLUJ8dK0fVjksn0ky1wGppmpUJLoMQ1gDiAeAAaQPMKWfUGdKl2jP5TlmJoBzRXbUaXlwBDrA/dAMwPLirusJud4Vblja7HMbVJ+0qADVv1baY1OvwLyPRVub9JamHxVSk6m17GaLCWvhzZPa2N/DjuscWqLxyxSLp7Uy+jKm4Ytqsa9sgOEgHceYXXYayfG9ovGaKnTB2T1DGFkACwsByHIJ+pSg3UepSXKco9HbSl2WlHNmmxMedlMZigdlln0ymhUe3ukj98lWOd+0Tfjp9M2XWpqtVtdZkZpUG9/knKmayB2SqrNF+yTwTXonYqv48VVvqy4jh+abr4onb3i/uo4rDUNr/8LmbTWjqEXGSsdeUy8pyqmysZvRHqhSuiT9OOp/1h7PdjiPmAmHrmUu04rDu/1mD0c4NPyK7xupIWRXBr+RrMzo/aHxCvcl/lN/tChZnR7am5QOwB4fmvQXZ5Mnomjb1SqWySNj5pVHZdnAtCEJiJCEIQMEIQgAQhCABCEIAFBzf+W/8A7VT/ABXULmXQMo87/wCqH/jVPrTVV0j/AOnx3/kUf8KSELJk/i/v+jE+iVl3dwH9mI+imVF1CWP6/wCP9UWwkHE7lRHoQuJGyJHeor0IU2VQw5cKELk7OHdQc37nqPqhCY12WVff0TLkIS9h6G3Jqh/Oo/8Adp/5tQhdR7QPpnpOZ971Kdyru+/1Qhel7PHfRMHHzXaO3qhC6OBaEITA/9k=)
